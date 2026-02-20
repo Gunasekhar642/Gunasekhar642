@@ -21,8 +21,8 @@
 ---
 
 📫 ## Connect With Me
-- 💼 LinkedIn: add-your-link
-- 📧 Email: yourmail@gmail.com
+- 💼 LinkedIn: www.linkedin.com/in/guna-sekhar-42b973178
+- 📧 Email: gunasekhar642@gmail.com
 
 ---
 
